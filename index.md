@@ -10,5 +10,6 @@ layout: default
 
 # Perversion and the Television
 <img src="/assets/images/VoigtSongEarth.jpg" alt="" class="home-hero-image" style="width: 1000px;">
+
 Also listen to my music el cri cri on most platforms
 
