@@ -4,9 +4,10 @@ author: Adrian
 ---
 
 _Also wrote this for class, I was hoping I would get to explore the analysis of flows that exists_
-_There is a lot of really interesting stuff going on there that I'm not entirely sure was in the scope of the class. My emphasis on the class antagonism as the focus of her analysis is slightly wrong_
+_There is a lot of really interesting stuff going on there that I'm not entirely sure was in the scope of the class. My emphasis on class antagonism as the focus of her analysis is slightly wrong_
 
-# A Praxis of Upheaval
+
+
 
 The question of the state has passed from generation to generation, creating a new formulation in each different instance. Traditionally, the capitalist state has been seen as something that must be immediately taken, destroyed and replaced by a new socialist state. In her essay _The Rhythms of the Pachakuti_, Raquel Gutierrez interrogates that exact tradition within Marxism by redefining the word emancipation. In its new meaning, Gutierrez gives us the ability to change emancipation into an ongoing manifestation of communal will. This essay is interested in how emancipation moves beyond capital and our immediate capitalist subjectivity by reshaping the terrain of struggle beyond the state while retaining the structure of Marxist analysis.
 
