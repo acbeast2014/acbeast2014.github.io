@@ -9,6 +9,10 @@ _There is a lot of really interesting stuff going on there that I'm not entirely
 
 
 
+
+
+
+
 The question of the state has passed from generation to generation, creating a new formulation in each different instance. Traditionally, the capitalist state has been seen as something that must be immediately taken, destroyed and replaced by a new socialist state. In her essay _The Rhythms of the Pachakuti_, Raquel Gutierrez interrogates that exact tradition within Marxism by redefining the word emancipation. In its new meaning, Gutierrez gives us the ability to change emancipation into an ongoing manifestation of communal will. This essay is interested in how emancipation moves beyond capital and our immediate capitalist subjectivity by reshaping the terrain of struggle beyond the state while retaining the structure of Marxist analysis.
 
 Gutierrez sets out by stating emancipation can not be but minimally understood as a “transitive (requiring an object) and reflexive (the subject acts on itself ) verb"[1].  A verb that constellates the understanding of the “common capacity to take action and to decide for and by themselves"[1]. An understanding that comes about only by putting into perspective the ways in which subordination to capital relates to our position as subjugated individuals, in other words, a subjugated class. It is through this inherent contradiction that “social emancipation as a growing and intermittent trajectory or itinerary arises from the persistent state of subjection and powerlessness that we bear"[1]. Here, it then becomes abundantly clear that Gutierrez’s key for the continual definition of emancipation, is a historical methodology. It is something that is always culminating into itself and must be constantly communally reflected on. Evidence of this can be found in the references to the inscription of "concrete political activity”[1] of various groups in Bolivia during the mid 2000’s. Gutierrez further uses this concept to show how emancipation shows itself as a manifestation of material relations, a strategy that is being acted out not an idea that is being “constructed from the dominant social position” [1].
