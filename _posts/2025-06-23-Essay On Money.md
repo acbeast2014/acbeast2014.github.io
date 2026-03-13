@@ -7,6 +7,7 @@ _I wrote this in class and I needed something I could put up on here, this lowke
 _work towards the end but thats just because I was trying to fit everything I could into 5 pages,_
 _Some of the claims I make towards the end are very very barren but i dont mind wtv_
 
+<!--more-->
 
 The cells of capitalist production push and pull the strings of capital. Marx sought to capture and dissect these fractals of capitalist existence in the book Capital. Published after the communist manifesto, Marx was answering the question: What does it mean for labor relations to obfuscate themselves? More importantly, why does the result of production not seem to arm the proletarian? This paper aims to explore money as the vessel that capital relies on to reproduce itself; that money as the ultimate commodity is responsible for the creation and upkeep of capital. 
 
